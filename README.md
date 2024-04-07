@@ -1,7 +1,18 @@
-Jesus says, Therefore doth my Father love me, because I lay down my life, that I might take it again. (Jn 10:17). Again Jesus says, But that the world may know that I love the Father; and as the Father gave me commandment, even so I do... (Jn 14:31) . The obedience of Jesus to the Father was the expression of His love to the Father. Jesus obeyed the commandment of the Father as evidence of His love to the Father.
-In a similar vein, Jesus expects that those that claim to love Him should obey His commandments. Jesus says, If ye love me, keep my commandments. (Jn 14:15).
-What has He said to us? What does He expect us to obey? In most cultures, the last word of dying person is usually taken seriously by the children When Jacob was dying, he told his children to carry His corpse from Egypt to burry in Canaan. They obeyed him. That obedience was a sign of love and regard to their father.
-Similarly, the last words of Jesus before going back to heaven was, "Therefore go and make disciples of all nations... "(Matt 28:19 NIV). This was the last words of Jesus to His disciples as He ascended to heaven. Our obedience is the prove of our love. Jn 14:15 says, If ye love me, keep my commandments. Jesus expressed it emotionally this way, "And why call ye me, Lord, Lord, and do not the things which I say?" Compliance with this command is the expression of your love for Him Compliance is the expression of our submission to His Lordship It takes love for souls to go for souls. God loves souls, He sent Jesus to die for souls.
-Jesus loves souls, He came for souls. If you love God, you will go for souls. In a moment, think back. Rewind! When you first gave your life to Christ, you loved God. You loved Jesus.
-You loved souls! What's happening now? It seems your love has died. You seem too busy for the Lord. Your time is too precious to give for evangelism. You can't make sacrifices for souls to be saved. Now, you can disobey the Great Commission with excuses. Now, you can disobey the Lord without guilt. Your love for the Lord is either dead or in a coma.
-May the Lord awaken your love for Him. May you passionately love what God loves. May the fire of His love set your soul on fire for the souls of people around you. May your love for the Lord be shown in your obedience to the Great Commission
+Partnership is a state of being a partner with someone, It is a relationship subsisting between partners,
+Partnership involves the participation, association, and joint interest of the partners, Partners have a common goal. Partners are united to achieve a common goal.
+
+Who is a Partner?
+A partner is one of two or more people who do something together. or are closely involved in something of common interest.
+A partner is a person who shares with another in some action or endeavour someone who is associated with another in a common activity or interest. Eg Business partner - they work together to achieve a common goal.
+PARTNERSHIP WITH THE HOLY SPIRIT
+Partnership with the Holy Spirit implies relationship with Holy spint to achieve a common goal or interest. To be in partnership with the Holy Spirit is to associate, to relate with the Holy Spirit in order to accomplish a particular task or purpose.
+For effective partnership, there must be relationship, fellowship, and communication. You cannot be in partnership with a person without relating and communicating with the person. The challenge many of us have is that we don't relate and communicate with the Holy Spirit, yet we want to enjoy His help or benefits. If you don't develop capacity to talk to the Holy Spirit and hear from Him, you cannot have effective partnership with Him. Partners relate and talk together.
+The disciples related with Jesus when was on earth with them. Jesus promised to send them another Comforter, Helper, Teacher, to replace Him. Jesus expected them to relate, partner with the Holy Jesus pected is disciples tored up the Holy Spi, depend on Him for guidance and direction in everything.
+Jesus wouldn't let the disciples start ministry until the Holy Spirit came upon them.
+He knew their partnership with the Holy Spirit was indispensable to their spiritual growth and their ability to grow the church.
+One reason the Holy Spirit is given to us (among many others), is to help us win souls for Jesus.
+Without the Holy Spirit you cannot win a soul for Jesus.
+No one can make any significant contribution to the kingdom of God without the help of the Holy Spirit.
+In this season of soul winning, the Lord is calling you into partnership with the Holy Spirit.
+May the Lord deepen your partnership with the Holy Spirit to be an effective soul winner.
+May the Holy Spirit be your Senior Partner in the Soul-winning Enterprise in Jesus Name.
